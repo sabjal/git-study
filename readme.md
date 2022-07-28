@@ -1,3 +1,1 @@
-working 
-fufu is good 
-God is Good
+I Love God
